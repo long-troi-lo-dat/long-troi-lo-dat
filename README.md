@@ -3,7 +3,7 @@
 
 - 📫 How to reach me **hnbaolong.4work@gmail.com**
 
-- ⚡ Fun fact **I think I am funny**
+- ⚡ Fun fact **I think I am handsome**
 
   
 <h3 align="left">Languages and Tools:</h3>
